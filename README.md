@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning artificial intelligence 
 -  I’m looking to collaborate on anything you want brother.
 - 📫 you can reach me on email ravuofficial8@gmail.com or Instagram 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: él homré
+- ⚡ Fun fact: there's nothing 
 
 <!---
 AadityaKumarSharma/AadityaKumarSharma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
